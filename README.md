@@ -1,13 +1,1 @@
-#CTU BLOEMFONTEIN MCSD CLASS
-##_CONTRIBUTING MEMBER_
-+ Cyberfire777
-
-+ Enigma241
-
-+ HAJNEL
-
-+ SimoneMys
-
-+ Unknown-717
-
 
